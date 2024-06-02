@@ -1,0 +1,1 @@
+# shulbi_mektep
